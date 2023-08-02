@@ -1,0 +1,1 @@
+# articol_stilizat_global
